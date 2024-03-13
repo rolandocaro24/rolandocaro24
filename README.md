@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @rolandocaro24
+- 👀 I’m interested in fitness, coffee and technology. 
+- 🌱 I’m currently learning SQL and Python.
+- 📫 How to reach me rolando.jr@hotmail.com or https://www.linkedin.com/in/rolando-caro-crespo
+- 😄 Pronouns He/Him
+- ⚡ Fun fact my degree is in Sport and Exercise Science 
